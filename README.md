@@ -21,7 +21,11 @@
 
   &emsp;
   
-⚠︎󠀠󠀠󠀠⠀ ⠀ ⠀ ⠀ relapsed ⸝⸝ ⠀  iwecuf
+⚠︎󠀠󠀠󠀠⠀ ⠀ ⠀ ⠀ relapsed ⸝⸝ ⠀  iwecucf\
+c + h is okay‎ ,‎ ‎  but will not talk much\
+unless close ┆‎ ‎ likely semi-verbal
+
+‎ ‎ ‎ ‎ ‎ ≽(◉˕ ◉ ≼マ
  
 </details>
 
