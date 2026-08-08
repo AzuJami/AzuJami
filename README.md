@@ -1,8 +1,4 @@
 <div align="center">
-  
-  <picture>
- <img width="736" height="125" alt="c7dd6cd2-fb25-4a80-9856-60e71a249f34_removalai_preview" src="https://github.com/user-attachments/assets/1ddcb51d-6bd5-46de-9ac2-bb6f93bec220" />
-</picture>
 
 <p align="center">
 
