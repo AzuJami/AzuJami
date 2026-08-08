@@ -7,3 +7,10 @@
 <p align="center">
 <img width="736" height="247" alt="download (1)" src="https://github.com/user-attachments/assets/5c5ed75c-c59d-4872-82e8-92dbc6808375" />
 </p>
+
+<details>
+  <summary>ᨳ𐔌՞҂ ˕ ֊՞𐦯ᜊ</summary>
+
+relapsed , iwec
+ 
+</details>
