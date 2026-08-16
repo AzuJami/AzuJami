@@ -14,7 +14,7 @@
 <picture><img width="100" height="100" alt="9ccae0f4-a30d-4c42-8c9f-e660f5a41270_removalai_preview" src="https://github.com/user-attachments/assets/aa491156-2f31-44b5-80c1-3a4d7b90414a" align="right" /> </picture>
 
 
-⠀ 𐂯⠀ ⠀𝚒𝚗𝚏𝚘 ⋮
+⠀<sub> 𐂯⠀ ⠀𝚒𝚗𝚏𝚘 ⋮</sub>
 
 <details>
   <summary>⩇⩇:⩇⩇</summary>
@@ -25,15 +25,12 @@
 c + h is okay‎ ,‎ ‎  but will not talk much\
 unless close ┆‎ ‎ likely semi-verbal
 
-‎ ‎ ‎ ‎ ‎ ≽(◉˕ ◉ ≼マ
- 
 </details>
 
-ــــــــــــــــﮩ٨ـــ
 
-<small>
+ــــــــــــــــﮩ٨ـــ<div align="left">
+</div>
 
 𝑠𝑒𝑚𝑖-𝑣𝑒𝑟𝑏𝑎𝑙 𝑡𝑜 𝑛𝑜𝑛-𝑣𝑒𝑟𝑏𝑎𝑙\
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  &emsp;&emsp;__⌞ 𝑑𝑛𝑖 ⌝__ ℎ𝑦𝑝𝑜𝑐𝑟𝑖𝑡𝑒𝑠\
  ‎ ‎ ‎ . ‎ ‎ ‎ ‎ 𝑎𝑠𝑠ℎ𝑜𝑙𝑒𝑠 ‎ ‎ .‎ ‎ ‎ ‎ ‎ 𝑎𝑛𝑡𝑖 𝑛𝑒𝑜𝑝𝑟𝑛𝑠
-</small>
