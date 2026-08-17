@@ -23,7 +23,7 @@
   
 ⚠︎󠀠󠀠󠀠⠀ ⠀ ⠀ ⠀ relapsed ⸝⸝ ⠀  iwecucf\
 c + h is okay‎ ,‎ ‎  but will not talk much\
-unless close ┆‎ ‎ likely semi-verbal
+unless close ┆‎ ‎ ♡♡
 
 </details>
 
