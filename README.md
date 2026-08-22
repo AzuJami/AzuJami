@@ -14,7 +14,8 @@
 <picture><img width="100" height="100" alt="9ccae0f4-a30d-4c42-8c9f-e660f5a41270_removalai_preview" src="https://github.com/user-attachments/assets/aa491156-2f31-44b5-80c1-3a4d7b90414a" align="right" /> </picture>
 
 
-⠀<sub> 𐂯⠀ ⠀𝚒𝚗𝚏𝚘 ⋮</sub>
+⠀<sub> 𐂯⠀ ⠀𝚒𝚗𝚏𝚘 ⋮
+</sub>
 
 <details>
   <summary>⩇⩇:⩇⩇</summary>
@@ -24,6 +25,33 @@
 ⚠︎󠀠󠀠󠀠⠀ ⠀ ⠀ ⠀ relapsed ⸝⸝ ⠀  iwecucf\
 c + h is okay‎ ,‎ ‎  but will not talk much\
 unless close ┆‎ ‎ ♡♡
+
+
+**BYF & WARNINGS !**
+
+<sub>
+‎ ‎ ‎ ‎ I'm a jealous person and pretty insecure, so don't friend me if you aren't ready to deal with that.
+</sub>
+
+&emsp;
+
+
+<sub>
+‎ ‎ ‎ ‎ And no, I unfortunately won't admit I'm jealous in front of your face, I'm working on this so please bear with me as I overthink a lot and I can be very sensitive, but often times I won't say I am.
+</sub>
+
+&emsp;
+
+
+<sub>
+‎ ‎ ‎ ‎ my social batter drains quickly and I will go semi to non verbal if that's the case, so don't force me into conversations especially if we are not CLOSE.
+</sub>
+
+&emsp;
+
+<sub>
+If you have read this and find me unbearable to be with, that's on you for not taking these warnings seriously.
+</sub>
 
 </details>
 
