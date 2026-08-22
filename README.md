@@ -26,8 +26,9 @@
 c + h is okay‎ ,‎ ‎  but will not talk much\
 unless close ┆‎ ‎ ♡♡
 
+&emsp;
 
-**BYF & WARNINGS !**
+> **BYF & WARNINGS ⚠︎**
 
 <sub>
 ‎ ‎ ‎ ‎ I'm a jealous person and pretty insecure, so don't friend me if you aren't ready to deal with that.
